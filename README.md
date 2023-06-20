@@ -1,3 +1,3 @@
 # hello.world
 testing Github
-I'm a mom of six and about to become a Gramma of triplets
+I'm a mom of six and gramma of 4, including a set of triplets.
